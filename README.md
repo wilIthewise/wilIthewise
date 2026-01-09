@@ -1,6 +1,7 @@
 ![](https://files.catbox.moe/vlglaz.png)
-𝘙𝘌𝘈𝘋 MY RENTRY/PRONOUNS PAGE BEFORE YOU INTERACT 
 
-⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN 
+${\textsf{\color{#ffdead}READ RENTRY /}}$ ${\textsf{\color{#3d3d73}PRONOUNS PAGE}}$
 
-༄ C+H & Int is appreciated please!!! I also accept all friend requests too , so dont be afraid!!! 
+${\textsf{\color{#3d3d73}⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N +}}$ ${\textsf{\color{#ffdead}OTHERKIN}}$
+
+${\textsf{\color{#ffdead}༄ C+H and Int is appreciated please!!!}}$ ${\textsf{\color{#3d3d73}I also accept all friend requests too , so dont be afraid!!!}}$ 
