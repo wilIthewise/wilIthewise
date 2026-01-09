@@ -1,5 +1,5 @@
 ![](https://files.catbox.moe/vlglaz.png)
-${\textsf{\color{#ffdead}𝘙𝘌𝘈𝘋 MY RENTRY/PRONOUNS PAGE BEFORE YOU INTERACT!!${\textsf{\color{#ffdead}
+𝘙𝘌𝘈𝘋 MY RENTRY/PRONOUNS PAGE BEFORE YOU INTERACT 
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN 
 
