@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/vlglaz.png)
+![](https://files.catbox.moe/gw6rf3.png)
 
 ${\textsf{\color{#ffdead}READ RENTRY /}}$ ${\textsf{\color{#3d3d73}PRONOUNS PAGE}}$
 
