@@ -9,9 +9,6 @@ ${\textsf{\color{#ffdead}༄ C+H and Int is appreciated please!!!}}$ ${\textsf{\
 
 [ponytown info](https://rentry.co/forponytownzz)
 
-![](https://files.catbox.moe/e5vhzd.jpg)
-![](https://files.catbox.moe/jdnw72.png)
-![](https://files.catbox.moe/pn6n89.png)
-![](https://files.catbox.moe/3u7bmz.gif)
+![](https://files.catbox.moe/e5vhzd.jpg)![](https://files.catbox.moe/jdnw72.png)![](https://files.catbox.moe/pn6n89.png)![](https://files.catbox.moe/3u7bmz.gif)
 ![](https://files.catbox.moe/6bh6oy.gif)![](https://files.catbox.moe/4o339i.gif)
 ![](https://files.catbox.moe/07mm64.gif)
